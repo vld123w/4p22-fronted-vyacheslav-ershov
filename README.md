@@ -1,1 +1,1 @@
-# 4p22_fronted_vyacheslav_ershov
+# 4p22-fronted-vyacheslav-ershov
